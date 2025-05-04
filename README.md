@@ -1,0 +1,1 @@
+# ArtigoAn-liseCr-ticadasRotasdeColetadeRes-duosS-lidosUrbanosnoBairroCentrodoMunic-piodoCrato-CE
